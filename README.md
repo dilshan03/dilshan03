@@ -1,5 +1,4 @@
-# 💫 About Me:
-Hi there, I'm Dilshan.
+# 💫 About Me: Hi there, I'm Dilshan.
 
 
 ## 🌐 Socials:
